@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket plugin with quantitative Polymarket Plugin | scalping-strategies + smart-contract-integration. Featuring scalping-strategies and
 
 
 
